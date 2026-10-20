@@ -29,7 +29,7 @@ Sao Liêm Trinh khi đi cùng sao Thất Sát tại Sửu Mùi tạo thành các
 **Sao Liêm Trinh ở Cung Mệnh an tại Dần Thân**
 ----------------------------------------------
 
-Tại Mão hoặc Dậu, Sao Liêm Trinh ở cung mệnh sẽ đồng độ với sao Phá Quân. Đây được coi là một tổ hợp khá kém, mang đến cho đương số nhiều thử thách và khó khăn trong cuộc sống. Trong một số trường hợp, khi xét thêm ảnh hưởng của **[sao Tham Lang cung Mệnh](https://coubic.com/tuvisomenhtrondoi/2374325)**, tính chất biến động và sự va đập trong cuộc đời càng thể hiện rõ nét hơn. Bất kể là nam hay nữ mệnh, cuộc đời của họ đều khá vất vả, chỉ có thể tìm thấy sự sung sướng và thịnh vượng vào những năm già dặn. Sao Phá Quân biểu thị sự hao tổn, hao bại – khi kết hợp với tính nóng nảy, thiếu kiên nhẫn của Liêm Trinh làm cho bộ sao này thiếu sức kháng cự trước những thử thách của đời sống
+Tại Mão hoặc Dậu, Sao Liêm Trinh ở cung mệnh sẽ đồng độ với sao Phá Quân. Đây được coi là một tổ hợp khá kém, mang đến cho đương số nhiều thử thách và khó khăn trong cuộc sống. Trong một số trường hợp, khi xét thêm ảnh hưởng của **[sao Tham Lang cung Mệnh](https://tuvisomenhtrondoi.stores.jp/reserve/tuvisomenhtrondoi/2374325)**, tính chất biến động và sự va đập trong cuộc đời càng thể hiện rõ nét hơn. Bất kể là nam hay nữ mệnh, cuộc đời của họ đều khá vất vả, chỉ có thể tìm thấy sự sung sướng và thịnh vượng vào những năm già dặn. Sao Phá Quân biểu thị sự hao tổn, hao bại – khi kết hợp với tính nóng nảy, thiếu kiên nhẫn của Liêm Trinh làm cho bộ sao này thiếu sức kháng cự trước những thử thách của đời sống
 
 **Sao Liêm Trinh ở cung mệnh an tại Mão Dậu**
 ---------------------------------------------
